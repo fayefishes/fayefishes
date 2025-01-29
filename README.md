@@ -1,4 +1,6 @@
-<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
+ㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313hwgmtx7kvftxvtnsgbhlr2esa&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=000f0d&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313hwgmtx7kvftxvtnsgbhlr2esa&redirect=true)
 
 ![sua](https://i.pinimg.com/736x/e3/c3/a6/e3c3a600b5cb26613c660691f867a56e.jpg) 
 <!--
