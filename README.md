@@ -8,6 +8,10 @@ c + h heavily encouraged at all times ^_^
 
 as stated in my bio, please do not take inspo or copy my skins
 
+hihihhiii kikii @aik4aa
+
+hi dad @cutegangster
+
 <!--
 **s7ri/s7ri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
