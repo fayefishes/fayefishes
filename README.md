@@ -54,7 +54,7 @@ Don't
 
 guys yes i ship skephalo im not cring or anything i SWEAR PLEASE
 
-[!](https://i.pinimg.com/736x/e9/32/97/e932976a8424ec03e2a3c127abceb9fd.jpg)
+![](https://i.pinimg.com/736x/e9/32/97/e932976a8424ec03e2a3c127abceb9fd.jpg)
 
 
 
