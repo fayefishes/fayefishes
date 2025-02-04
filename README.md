@@ -2,9 +2,6 @@
 
 ㅤㅤㅤㅤㅤ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314xywmy3fz5mnbhz4bpwdjbapfe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=2c8785&bar_color_cover=true)
 
-Song by
-GROUPLOVE
-
 Take me to your best friend's house
 Goin' 'round this roundabout, oh yeah
 
@@ -54,6 +51,12 @@ Don't leave me tongue tied (Don't leave me)
 Don't wave no goodbye (Don't wave bye)
 Don't leave me tongue tied (Don't leave me)
 Don't
+
+guys yes i ship skephalo im not cring or anything i SWEAR PLEASE
+
+[!](https://i.pinimg.com/736x/e9/32/97/e932976a8424ec03e2a3c127abceb9fd.jpg)
+
+
 
 <!--
 **s7ri/s7ri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
