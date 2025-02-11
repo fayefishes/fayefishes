@@ -1,3 +1,5 @@
+-> `i fw skeppy **not** dsmp.` <-
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
 
 ㅤㅤㅤㅤㅤ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314xywmy3fz5mnbhz4bpwdjbapfe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=2c8785&bar_color_cover=true)
@@ -81,8 +83,6 @@ Don't wave no goodbye (Don't wave bye)
 Don't leave me tongue tied (Don't leave me)
 
 Don't
-
-guys yes i ship skephalo im not cring or anything i SWEAR PLEASE
 
 
 
