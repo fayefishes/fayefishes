@@ -1,4 +1,4 @@
-!! `i fw skeppy **not** dsmp.` !!
+`!` `!` i fw skeppy **not** dsmp. `!` `!`
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
 
