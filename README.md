@@ -2,8 +2,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
 
-ㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/8e4ca2e6-3a1a-4aba-8f1a-f1d6957b5c8b)
-
 
 ⠀⠀⠀⢀⣼⡿⢯⡿⣽⣻⣿⣿⣿⣿⣿⣿⣯⣿⡽⣯⢟⣯⣟⢿⣽⣻⡽⣶⢤⡀⠀⠀⠀⠀⢻⣟⡿⢿⣧⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⣼⢯⣟⢯⢷⣫⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⡿⣞⣞⣯⢶⣏⡷⢯⢯⢿⣄⠀⠀⠀⠸⣟⠾⡉⠪⡵⠂⠠⡀⠀⠀⠀
