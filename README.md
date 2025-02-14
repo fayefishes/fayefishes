@@ -2,7 +2,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
 
-ㅤㅤㅤㅤㅤ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314xywmy3fz5mnbhz4bpwdjbapfe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=2c8785&bar_color_cover=true)
+ㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/8e4ca2e6-3a1a-4aba-8f1a-f1d6957b5c8b)
+
 
 ⠀⠀⠀⢀⣼⡿⢯⡿⣽⣻⣿⣿⣿⣿⣿⣿⣯⣿⡽⣯⢟⣯⣟⢿⣽⣻⡽⣶⢤⡀⠀⠀⠀⠀⢻⣟⡿⢿⣧⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⣼⢯⣟⢯⢷⣫⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⡿⣞⣞⣯⢶⣏⡷⢯⢯⢿⣄⠀⠀⠀⠸⣟⠾⡉⠪⡵⠂⠠⡀⠀⠀⠀
