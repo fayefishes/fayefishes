@@ -1,6 +1,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=✧&color=000000&style=flat" alt="s7ri" />
+
 ![Suamizi-removebg-preview](https://github.com/user-attachments/assets/f5c2facc-60b4-4f8f-9697-bb4aadb90b65)
 
 
