@@ -1,4 +1,4 @@
-
+strict dni dandysworld
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=　♡　ིྀ　&color=4d4d4d&style=flat" alt="s7ri" />
 ![](https://64.media.tumblr.com/2d46d9d01d1015362a59fb0da6985c15/178e2f094de5bca4-bc/s250x400/33abc5b7c647f62052ec6d95d7bd1de798f6b64a.gifv)
