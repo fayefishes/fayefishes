@@ -1,8 +1,16 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=4d4d4d&style=flat" alt="s7ri" />
-![](https://64.media.tumblr.com/2d46d9d01d1015362a59fb0da6985c15/178e2f094de5bca4-bc/s250x400/33abc5b7c647f62052ec6d95d7bd1de798f6b64a.gifv)
-wip
+
+![image](https://github.com/user-attachments/assets/5c181272-be40-428d-92fb-4cf793ca459e)
+
+huzzah!!!
+test123
+1
+2
+344444444444![image](https://github.com/user-attachments/assets/0867345f-5062-4e82-928d-5e8e8ad78280)
+
+
 
 
 
