@@ -1,6 +1,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=4d4d4d&style=flat" alt="s7ri" />
 
-![image](https://github.com/user-attachments/assets/76dbfcab-b936-4def-b89a-d0338685e651)
+![Uploading image.png…]()
+
 
 ---
  
