@@ -2,11 +2,10 @@
 ---
  <img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=4d4d4d&style=flat" alt="s7ri" />
 
-this is a wip ill never finish 141414　　　　　　![image](https://github.com/user-attachments/assets/6346d2ac-ae70-4ad6-be28-b75d8cb653cb "if u see this ur epic" )
----
-![image](https://github.com/user-attachments/assets/41f08804-163e-42ea-8555-be35401fd22b)  he an angel, like a food cake!
+this is a wip ill never finish 141414　skepy　　　　　![image](https://github.com/user-attachments/assets/ecdd736b-7596-4674-9e00-db14bff56d73)
 
-got a halo&im lookn like a double take ![image](https://github.com/user-attachments/assets/f31e96c2-4f3d-403c-bd00-40e9e9b01f93)
+
+
 
 
 
