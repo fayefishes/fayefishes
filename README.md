@@ -2,13 +2,13 @@
 
  <img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=4d4d4d&style=flat" alt="s7ri" />
 
-test123 hey hey hey 123 skeppy
+> test123 hey hey hey 123 skeppy
 
-1 skeppy skeppy
+- 1 skeppy skeppy
 
-2 skeppy skeppy 14
+< 2 skeppy skeppy 14
 
-344444444444 hahahhahah lallalalla skeppyytyyyyyyy ![image](https://github.com/user-attachments/assets/6346d2ac-ae70-4ad6-be28-b75d8cb653cb)
+>344444444444 hahahhahah lallalalla skeppyytyyyyyyy ![image](https://github.com/user-attachments/assets/6346d2ac-ae70-4ad6-be28-b75d8cb653cb)
 
 
 
