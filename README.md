@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=e40a7f&style=flat" alt="s7ri" />
+　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" />
 
 　[![](https://github.com/user-attachments/assets/61d90874-228b-404d-b493-e3a4b69e181a)](https://xe4ni.straw.page)
 　[![](https://github.com/user-attachments/assets/27594cd5-4df7-4e9f-87d6-6914733e9d5c)](https://guns.lol/xe4ni)
