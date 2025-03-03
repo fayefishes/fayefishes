@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=a8fe39&style=flat" alt="s7ri" />
+　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=e40a7f&style=flat" alt="s7ri" />
 
 ![<3](https://github.com/user-attachments/assets/f4aae8ae-e12c-433a-8ec4-f816ef788e37)
 
