@@ -1,4 +1,4 @@
-kazam yuri　　　　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" /> pfp + banner nf2u,,, dns!!
+kazam yuri　　　　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" />
 ![image](https://github.com/user-attachments/assets/e918a915-4204-4dec-b133-7e1633ac34b8)
 
 ![DO NOT STEAL, NOT FREE TO USE](https://github.com/user-attachments/assets/7ac0fa9d-d618-4b52-9265-b02c9705fd6c)
