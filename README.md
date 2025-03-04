@@ -4,7 +4,8 @@ kazam yuri　　　　　　　　　　　　<img src="https://komarev.com/ghpv
 　[![](https://github.com/user-attachments/assets/27594cd5-4df7-4e9f-87d6-6914733e9d5c)](https://guns.lol/xe4ni)
 　[![](https://github.com/user-attachments/assets/20ce38ae-6ff3-46b1-9d70-5501ecc51d56)](https://xe4ni.atabook.org)
  ---
- ![DO NOT STEAL!!! NOT FREE TO USE](https://github.com/user-attachments/assets/65148724-fd24-4f76-82d0-5ec88ad25baa)
+![DO NOT STEAL, NOT FREE TO USE](https://github.com/user-attachments/assets/7ac0fa9d-d618-4b52-9265-b02c9705fd6c)
+
 
 
 
