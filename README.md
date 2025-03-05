@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" />
+　　　　　　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" />
 
 　　　　　　　　![Untitled4_20250306002700](https://github.com/user-attachments/assets/44e3fe77-8c81-4dbd-9d63-ad1e442e4913)
         
