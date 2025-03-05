@@ -1,6 +1,7 @@
-kazam yuri　　　　　　　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" />
+kazam yuri　　　　　　　　　　　　　　　　<img src="https://komarev.com/ghpvc/?username=s7ri&label=swags&color=bc4475&style=flat" alt="s7ri" />
 
-rmking
+![image](https://github.com/user-attachments/assets/dab5d077-d56e-42fd-9601-eb866b79104b)
+
 
 
 
