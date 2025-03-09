@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey)
 
-![lol legends!!! we are te nutlings, feed us!](https://github.com/user-attachments/assets/c5df45ba-295d-4ad8-b2f5-8be603cb2484)
+![lol legends!!! we are the nutlings, plz feed us!!](https://github.com/user-attachments/assets/33e98038-57b2-476b-a5d0-bb6c5816d35d)
+
 
 
 
