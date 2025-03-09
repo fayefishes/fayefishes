@@ -1,3 +1,7 @@
+![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey)
+
+![lol legends!!! we are te nutlings, feed us!](https://github.com/user-attachments/assets/c5df45ba-295d-4ad8-b2f5-8be603cb2484)
+
 
 
 
