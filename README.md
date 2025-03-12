@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey)
+![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey&label=losers)
 
 ![lol legends!!! we are the nutlings, plz feed us!!](https://github.com/user-attachments/assets/33e98038-57b2-476b-a5d0-bb6c5816d35d)
 
