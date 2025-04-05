@@ -1,6 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey&label=losers)
 
-![](https://files.catbox.moe/wuu6gd.gif) ![](https://files.catbox.moe/ivczgy.gif)
+![](https://github.com/user-attachments/assets/31b6c1bb-7410-45f6-bd07-716b93128f52)
+
+
+![](https://github.com/user-attachments/assets/89ed154e-cbee-44d0-9733-86482b75a63c)
+
+
+
 
 
 
