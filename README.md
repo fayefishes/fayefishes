@@ -1,8 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey&label=losers)
 
-![lol legends!!! we are the nutlings, plz feed us!!](https://github.com/user-attachments/assets/33e98038-57b2-476b-a5d0-bb6c5816d35d)
+![]([https://github.com/user-attachments/assets/33e98038-57b2-476b-a5d0-bb6c5816d35d](https://files.catbox.moe/wuu6gd.gif) ![](https://files.catbox.moe/ivczgy.gif)
 
-i lov the lol legends/nutlings/the fuck you family (yes teh fuck u family is a ref heh)
 
 
 
