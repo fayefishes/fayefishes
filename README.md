@@ -1,6 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey&label=losers)
 
-![](https://github.com/user-attachments/assets/89ed154e-cbee-44d0-9733-86482b75a63c)
 <table>
   <tr>
     <td><img src="https://files.catbox.moe/51vqpi.png" width="200"></td>
@@ -30,6 +29,8 @@
     <td><img src="https://files.catbox.moe/k03j4n.png" width="200"></td>
   </tr>
 </table>
+
+![](https://github.com/user-attachments/assets/89ed154e-cbee-44d0-9733-86482b75a63c)
 
 
 
