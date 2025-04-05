@@ -1,8 +1,42 @@
 ![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey&label=losers)
 
 ![](https://github.com/user-attachments/assets/89ed154e-cbee-44d0-9733-86482b75a63c)
+<table>
+  <tr>
+    <td><img src="https://files.catbox.moe/51vqpi.png" width="200"></td>
+    <td>
+     💤｡　　　⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓ <br>
+     labels　　; lesb  demigirl  acespike ❜ <br>
+     ┄┄　meiten 🪽 ₊ or  meit. <br>
+     ➴　𓈒　　they.　i　am　a　minor <br>
+     skephalo　lssmp　md　wmals <br>
+     𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬　　　𓂂🐰 <br>
+    </td>
+  </tr>
+</table>
 
-![](https://github.com/user-attachments/assets/ff5eff38-c113-420b-a998-5ae28423fdd9)
+![](https://files.catbox.moe/ikewto.gif)
+
+<table>
+  <tr>
+    <td>
+      🐾𓂂　　　𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬 <br>
+      dni.;　basic dni　dw　vivziepop <br>
+      18+　fandoms　/ shows　ex frnds　𓈒 <br>
+      .　　　byi　˚sarc　sensitive<br>
+      competitive　.neglects　tonetags <br>
+      𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬　　　𓂂🌊 <br>
+    </td>
+    <td><img src="https://files.catbox.moe/k03j4n.png" width="200"></td>
+  </tr>
+</table>
+
+
+
+
+
+
+
 
 
 
