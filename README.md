@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=s7ri&color=lightgrey&label=losers)
+![](https://komarev.com/ghpvc/?username=s7ri&color=7fbdc1&label=losers)
 
 <table>
   <tr>
