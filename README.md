@@ -2,19 +2,19 @@
 
 <table>
   <tr>
-    <td><img src="https://files.catbox.moe/51vqpi.png" width="200"></td>
+    <td><img src="https://files.catbox.moe/07zrec.jpg" width="200"></td>
     <td>
-     💤｡　　　⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓ <br>
+     🍊｡　　　⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓ <br>
      labels　　; lesb  demigirl  acespike ❜ <br>
      ┄┄　meiten 🪽 ₊ or  meit. <br>
      ➴　𓈒　　they.　i　am　a　minor <br>
      skephalo　lssmp　md　wmals <br>
-     𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬　　　𓂂🐰 <br>
+     𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬　　　𓂂⭐ <br>
     </td>
   </tr>
 </table>
 
-![](https://files.catbox.moe/ikewto.gif)
+![](https://cdn.discordapp.com/attachments/804978370050916362/1236266987336896524/171481663078353414-14.gif?ex=67f3ac5a&is=67f25ada&hm=f5e68c5dadd545e62818540f37f6bb226fe1792e99210e923788bb7d91b6db28&)
 
 <table>
   <tr>
@@ -24,13 +24,11 @@
       18+　fandoms　/ shows　ex frnds　𓈒 <br>
       .　　　byi　˚sarc　sensitive<br>
       competitive　.neglects　tonetags <br>
-      𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬　　　𓂂🌊 <br>
+      𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬𐃬　　　𓂂🗝️ <br>
     </td>
-    <td><img src="https://files.catbox.moe/k03j4n.png" width="200"></td>
+    <td><img src="https://files.catbox.moe/m08308.jpg" width="200"></td>
   </tr>
 </table>
-
-![](https://github.com/user-attachments/assets/89ed154e-cbee-44d0-9733-86482b75a63c)
 
 
 
