@@ -3,7 +3,7 @@
   ❞ Whoa I think I’m addicted, I’m addicted to love ! ❞ <br>
 </p>
 <p align="center">
-  <img src="https://files.catbox.moe/azod3g.png" alt="Centered Image">
+  <img src="https://files.catbox.moe/pmfl6w.png" alt="Centered Image">
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image">
 </p>
