@@ -8,9 +8,9 @@
   <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image">
 </p>
 <p align="center">
-  <a href="https://mei.atabook.org">ata</a> 
-  <a href="https://meit.straw.page">strw</a> 
-  <a href="https://rentry.co/meit">rntry</a>
+  <a href="https://mei.atabook.org">atabook</a> 
+  <a href="https://meit.straw.page">strawpage</a> 
+  <a href="https://rentry.co/meit">rentry</a>
 </p>
 
 
