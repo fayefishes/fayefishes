@@ -1,6 +1,3 @@
-
-<p align="center">
-  ❞ Whoa I think I’m addicted, I’m addicted to love ! ❞ <br>
 </p>
 <p align="center">
   <img src="https://files.catbox.moe/pmfl6w.png" alt="Centered Image">
