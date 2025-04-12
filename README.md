@@ -1,16 +1,8 @@
-</p>
-<p align="center">
-  <img src="https://files.catbox.moe/pmfl6w.png" alt="Centered Image">
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image">
-</p>
-<p align="center">
-  <a href="https://mei.atabook.org">atabook</a> 
-  <a href="https://meit.straw.page">strawpage</a> 
-  <a href="https://rentry.co/meit">rentry</a>
-</p>
-
-
+<img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image"> <br>
+if i folo u &ur on my dni list ( 18+fandms, dw, basic dni, dsmp, c2bc)) then its purelu on accdeint or i didnt know!!!Pls block me. <br>
+timezone is gmt+8,minor so pls dont b weird 'round me <br>
+i ned frineds ,dont b afraid2aproach / talk2me !!ill respond unless im afk/offtab <br>
+also this is a ponytown acc.the business or stuff accs stop foloing me
 
 
 
