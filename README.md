@@ -2,7 +2,10 @@
 if i folo u &ur on my dni list ( 18+fandms, dw, basic dni, dsmp, c2bc)) then its purelu on accdeint or i didnt know!!!Pls block me. <br>
 timezone is gmt+8,minor so pls dont b weird 'round me <br>
 i ned frineds ,dont b afraid2aproach / talk2me !!ill respond unless im afk/offtab <br>
-also this is a ponytown acc.the business or stuff accs stop foloing me
+also this is a ponytown acc.the business or stuff accs stop foloing me <br>
+disc; starmeiten
+
+if yk a person or is a person named angel or used to be named angel who had a friend named lucas pls contact me!!! lucas misses you 
 
 
 
