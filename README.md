@@ -1,5 +1,5 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image"> <br>
-bros posture vs mine<br>
+my posture vs bros<br>
 ![](https://files.catbox.moe/7us2gt.jpg)
 
 if i folo u &ur on my dni list ( 18+fandms, dw, basic dni, dsmp, c2bc)) then its purelu on accdeint or i didnt know!!!Pls block me. <br>
