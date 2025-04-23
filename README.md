@@ -1,21 +1,5 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image"> <br>
-
-
-if i folo u &ur on my dni list ( 18+fandms, dw, basic dni, dsmp, c2bc)) then its purelu on accdeint or i didnt know!!!Pls block me. <br>
-timezone is gmt+8,minor so pls dont b weird 'round me <br>
-i ned frineds ,dont b afraid2aproach / talk2me !!ill respond unless im afk/offtab <br>
-also this is a ponytown acc.the business or stuff accs stop foloing me <br>
-disc; starmeiten
-
-if yk a person or is a person named angel or used to be named angel who had a friend named lucas pls contact me!!! lucas misses you 
-
-bro,, i have sm links uhmmm Holdon im js gonna list all of them here <br>
-- https://www.pinterest.com/starmeiten/
-- https://pronouns.cc/@meit
-- https://www.patreon.com/c/starmeiten
-
-my posture vs bros<br>
-![](https://files.catbox.moe/7us2gt.jpg)
+rmking n such soon
 
 
 
