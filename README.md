@@ -1,5 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image"> <br>
-rmking n such soon
+rmking n such soon <br>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314xywmy3fz5mnbhz4bpwdjbapfe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
