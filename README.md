@@ -2,10 +2,6 @@
 rmking n such soon <br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314xywmy3fz5mnbhz4bpwdjbapfe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-on a quest 2 folo all ponytowners :3
-
-i have like gen alot of rare fandoms lol um
-
 also uh you might remmebr me as starmeiten, xe4ni, sevxeni, axemoji or even canydgirl, aka this skin <br>
 ![image](https://github.com/user-attachments/assets/9b945139-0f7d-4ae6-9f04-4cfaeef20f5c) <br>
 
