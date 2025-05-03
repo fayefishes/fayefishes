@@ -8,6 +8,8 @@ also uh you might remmebr me as starmeiten, xe4ni, sevxeni, axemoji or even cany
 yeah ahah if we were friends b4 im sosorry 4 unfriending you. i ended up ufriending like everyone cs i was not doing well T_T <br>
 feel free 2 add me back if we were friedns b4!! <br>
 
+and absoluteley feel free 2 come and int, and try 2 be frinds wit me ^_^ im always open to mkaing new firneds!! (unless it says dni in my name)
+
 
 
 
