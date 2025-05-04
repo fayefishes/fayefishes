@@ -1,6 +1,5 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image"> <br>
-rmking n such soon <br>
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314xywmy3fz5mnbhz4bpwdjbapfe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![](https://files.catbox.moe/bdo6s7.jpg) <br>
 
 also uh you might remmebr me as starmeiten, xe4ni, sevxeni, axemoji or even canydgirl, aka this skin <br>
 ![image](https://github.com/user-attachments/assets/9b945139-0f7d-4ae6-9f04-4cfaeef20f5c) <br>
