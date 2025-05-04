@@ -1,4 +1,4 @@
-<img src="https://komarev.com/ghpvc/?username=s7ri&color=ff6f66&label=losers" alt="Centered Image"> <br>
+<img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 ![](https://files.catbox.moe/bdo6s7.jpg) <br>
 
 also uh you might remmebr me as starmeiten, xe4ni, sevxeni, axemoji or even canydgirl, aka this skin <br>
