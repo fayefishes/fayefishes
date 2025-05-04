@@ -1,7 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 ![](https://files.catbox.moe/bdo6s7.jpg) <br>
 
-also uh you might remmebr me as starmeiten, xe4ni, sevxeni, axemoji or even canydgirl, aka this skin <br>
+also uh you might remmebr me as starmeiten, xe4ni, sevxeni, s7ri, m8en, meit, vv4lr, axemoji or even canydgirl, aka this skin <br>
 ![image](https://github.com/user-attachments/assets/9b945139-0f7d-4ae6-9f04-4cfaeef20f5c) <br>
 
 yeah ahah if we were friends b4 im sosorry 4 unfriending you. i ended up ufriending like everyone cs i was not doing well T_T <br>
