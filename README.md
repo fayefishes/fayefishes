@@ -1,7 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
 ![](https://files.catbox.moe/bdo6s7.jpg) <br>
 
-dncopy any of my skins thanks. ask4 inspo (#>- 0 _ 0)
+dncopy any of my skins thanks. ask4 inspo hhhjhsd
 
 also uh you might remmebr me as starmeiten, xe4ni, sevxeni, s7ri, m8en, meit, vv4lr, axemoji or even canydgirl, aka this skin <br>
 ![image](https://github.com/user-attachments/assets/9b945139-0f7d-4ae6-9f04-4cfaeef20f5c) <br>
