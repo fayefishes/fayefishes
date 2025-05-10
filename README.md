@@ -1,4 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=s7ri&color=2a49a3&label=losers" alt="Centered Image"> <br>
+　　　　˖　𝒥℘　　__f__aye　　ྀི𓇼🎣  𓈒 <br>
+　　　　  ͜͝ ຼ𓈒 ︠།　🎤 　　' 曇りもない青い空　　! ' <br>
+　　　　﹏𓊝﹏[straw](https://fayefishes.straw.page)　[rentry](https://rentry.co/fayefishes)　[ata](https://faye.atabook.org) <br>
 ![](https://files.catbox.moe/bdo6s7.jpg) <br>
 
 dncopy any of my skins thanks. ask4 inspo hhhjhsd
